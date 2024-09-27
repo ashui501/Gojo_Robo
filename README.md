@@ -90,3 +90,11 @@ Press `Ctrl+b` and then `d`
 <a href="https://telegram.me/Demonios_Support"><img src="https://img.shields.io/badge/-Support%20Channel-blue.svg?style=for-the-badge&logo=Telegram"></a>
 </p>
 ━━━━━━━━━━━━━━━━━━━━
+
+
+Don't Worry Kids This repo Own By Team Apex And Demonios We are Back
+
+Devs Of Repository 
+
+akira
+Levi 
